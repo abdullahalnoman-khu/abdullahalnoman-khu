@@ -1,4 +1,4 @@
-![I have one and half years of experience in Digital marketing, SEO, Google Adsense, Graphic design](https://scontent.fdac136-1.fna.fbcdn.net/v/t39.30808-6/285144144_2046489855559369_5454108628639560357_n.jpg?_nc_cat=101&ccb=1-7&_nc_sid=e3f864&_nc_ohc=JThPcPSnixwAX8Wr8yX&tn=O6d188iUpRkf2296&_nc_ht=scontent.fdac136-1.fna&oh=00_AT-lmtsiYOhloj7YFo6KZ729ODl7QnCIOwIpk2xIrXi6Yg&oe=62EEC412)
+![I have one and half years of experience in Digital marketing, SEO, Google Adsense, Graphic design]https://www.facebook.com/photo/?fbid=2046489788892709&set=a.266062156935490
 
 ### Hi there 👋, My Name is Abdullah Al Noman
 #### I have one and half years of experience in Digital marketing, SEO, Google Adsense, Graphic design
